@@ -8,17 +8,23 @@
           ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ 
                                ⋆˚꩜｡.𖥔 ݁ ˖── .✦~(💥)  
 +:ꔫ:﹤ INTERESTS & INT._ ﹥:ꔫ:+ﾟ
-✶ Friday Night FUnkin , FNAF , Amoug US , Sonic , CRK , Miku , Picos School , Newgrounds , Coryxkenshin , etc!!
+<img src="https://i.ibb.co/0BkYbH7/IMG-5459.gif"/> Friday Night FUnkin , FNAF , Amoug US , Sonic , CRK , Miku , Picos School , Newgrounds , Coryxkenshin , etc!! <img src="https://i.ibb.co/dGLPnnw/IMG-6985.gif"/>
+
 
                 ♪ '' Gettin' freaky on a friday night yeah ! '' 🎤
 
     ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ 
 
+
 —— 🎤 
-I am a very introverted person and tend not to be social in the slightest. Please expect some awkwardness the first time you talk to me, as I'm not used to new people talking to me. Don't let that demotivate you though; you can approach me and have a chat, I personally don't mind it at all, I'm just a bit socially awkward. !!
+I am a very introverted person and tend not to be social in the slightest. Please expect some awkwardness the first time you talk to me, as I'm not used to new people talking to me. Don't let that demotivate you though; you can approach me and have a chat, I personally don't mind it at all, I'm just a bit socially awkward. <img src="https://i.ibb.co/68RS7wF/IMG-5210.gif"/>
+
+
+
 
 +:ꔫ:﹤ DNI & EXTRA._ ﹥:ꔫ:+ﾟ
 ⚠️ Basic DNI Criteria. 
+
 
 🔫 If you ever have any problems with a friend of mine, I'd like to kindly remind you that it's between YOU and THEM. I have nothing to do with your tea, so don't drag your little show around me. I despise arguments and discussions, even more when it involves any friend of mine. While I understand you might be "angry" or "annoyed", I'm not the right person to approach. You can solve it yourself. 
 
