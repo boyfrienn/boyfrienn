@@ -1,5 +1,5 @@
-ㅤ Ꮺㅤㅤㅤㅤㅤㅤ         ◞ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ﹙ <img src="https://i.ibb.co/0BkYbH7/IMG-5459.gif"/> ﹚﹒ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤBoyfriendㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ
-﹒ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ <img src="https://i.ibb.co/dGLPnnw/IMG-6985.gif"/>ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ﹒ㅤㅤㅤ ㅤㅤㅤㅤㅤFriday Night FUNKinㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ⺌﹐
+ㅤ Ꮺㅤㅤㅤㅤㅤㅤ         ◞ ㅤㅤㅤㅤㅤㅤㅤ﹙ <img src="https://i.ibb.co/0BkYbH7/IMG-5459.gif"/> ﹚﹒ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤBoyfriendㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ
+﹒ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img src="https://i.ibb.co/dGLPnnw/IMG-6985.gif"/>ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ﹒ㅤㅤㅤ ㅤㅤㅤㅤㅤFriday Night FUNKinㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ⺌﹐
 
                                                             
                              [  Gotta show that
